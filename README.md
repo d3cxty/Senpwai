@@ -166,4 +166,5 @@ If you have any concerns or objections regarding the content provided by this ap
 
 ## Epilogue
 
-Truly one of the most apps ever of all time.
+Truly one of the best apps of all time
+
